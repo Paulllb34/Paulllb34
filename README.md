@@ -1,4 +1,4 @@
-## About me
+## About me :shipit:
 
 🔩 BS Mechanical Engineering BYU 2023  
 💥 PhD Welding Engineering OSU 2027
